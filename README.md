@@ -1,0 +1,1 @@
+kotoeri-dict-imas
